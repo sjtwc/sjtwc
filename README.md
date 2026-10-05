@@ -1,4 +1,4 @@
-# Richard Tsang  <img alt="GIF" width="40px" src="https://github.com/sjtwc/sjtwc/assets/126203164/ee7415f5-3e48-413e-803e-396abd65e2b2" />
+# Hi, I'm Richard Tsang  <img alt="GIF" width="40px" src="https://github.com/sjtwc/sjtwc/assets/126203164/ee7415f5-3e48-413e-803e-396abd65e2b2" />
 
 ![GIF](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcmpnMDdtODVrOTMwN2c0enUycXY3bjZoM3JxeXl3ejFpOTN4NmljMCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/S3j1FQRl12RHy/giphy.gif)
 
